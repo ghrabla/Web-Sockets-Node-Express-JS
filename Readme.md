@@ -1,0 +1,1 @@
+an chat application make you connect with exist freind or randomly people by choosen a groupe that we suggest for you
